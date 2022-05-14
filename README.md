@@ -4,6 +4,9 @@
 
 ![image](https://user-images.githubusercontent.com/98727050/168422954-b4d7354d-a3b1-4da2-bb67-59334566b645.png)
 
+# Мартышка 
+
+![image](https://user-images.githubusercontent.com/98727050/168422469-559229a4-fa1d-45c2-b2bf-ba1d2e5dc699.png)
 
 Ни мисля гордый свит забовить,
 Вниманье дрюжбы возлюбя,
@@ -22,7 +25,3 @@
 Незрелых и увядших лит,
 Юма халопных наблюдений
 И сердца гореютных затет.
-
-# Мартышка 
-
-![image](https://user-images.githubusercontent.com/98727050/168422469-559229a4-fa1d-45c2-b2bf-ba1d2e5dc699.png)
